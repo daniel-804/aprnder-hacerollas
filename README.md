@@ -1,2 +1,0 @@
-# ollas
-venta de ollas
